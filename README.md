@@ -1,0 +1,2 @@
+# training
+have fun knowledge
